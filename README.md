@@ -1,0 +1,12 @@
+# Ultimate collection of phishing tools
+ FAST LOGIN ALL
+
+> PIN BYPASSER ALL
+
+> RECOVERY CODES ALL
+
+> EMAIL DISABLER ALL
+
+> ALL HAVE HYPERLINK
+
+> 2FA BYPASSER
